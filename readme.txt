@@ -1,0 +1,2 @@
+Hello travellers who've ventured into this realm of bored ro. The idea is that this will be the empty canvas where
+I'll paint my ideas and my attempts at achieveing something that hopefully does something :)
